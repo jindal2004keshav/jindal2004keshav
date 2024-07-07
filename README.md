@@ -1,3 +1,4 @@
+![Design and Development](https://github.com/jindal2004keshav/jindal2004keshav/blob/main/Avery%20Davis.jpg)
 <h1 align="center">Hi 👋, I'm Keshav Jindal</h1>
 <h3 align="center">A passionate software developer from India</h3>
 
