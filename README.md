@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **jindal2004keshav@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1Bj238VyOtAokR6RQXBxnYBjMK8yu09Hn](https://drive.google.com/drive/folders/1Bj238VyOtAokR6RQXBxnYBjMK8yu09Hn)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1FdIqD7OpF5catI7EBs63fIYxpm5PSuCh/view?usp=sharing](https://drive.google.com/drive/folders/1Bj238VyOtAokR6RQXBxnYBjMK8yu09Hn)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
